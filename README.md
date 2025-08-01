@@ -2,6 +2,7 @@
 ![a](https://i.postimg.cc/SK706shy/cooltext467683544736260.gif)
 
 [my rentry](https://fluffle.cc/reikoga)
+
 ^ see i moved to fluffle now so pretend it says fluffle lol
 
 [atabook if u want](https://sniide.atabook.org/)
